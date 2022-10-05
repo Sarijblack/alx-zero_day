@@ -1,1 +1,1 @@
-Hope it works
+school is cool
